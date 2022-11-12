@@ -4,4 +4,4 @@
 還挺垃圾的對八
 ***
 以下是我的資訊<br>
-[Discord 群](https://discord.gg/m9Z33wtHtK) | [Youtube](https://bit.ly/Ivan_YT) | [Github](https://github.com/TIvan829)
+[Discord 群](https://discord.gg/ouou) | [Youtube](https://bit.ly/Ivan_YT) | [Github](https://github.com/TIvan829)
